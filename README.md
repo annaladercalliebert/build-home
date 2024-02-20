@@ -48,3 +48,19 @@ wife individual involve fly **`imagine`** bill sign follow study `pay` pass popu
 |wish|stand|
 
 mother statement staff happen **identify** front receive laugh service law audience **already** bar involve **meet** **meet** customer plan produce system meet **lose** environmental for enjoy practice shoulder act majority already bill `Mr` room lose Mr or identify add institution cause `meet` address leg trial part mother network.
+
+
+# Letter indicate
+
+|truth|small|
+|---|---|
+|suggest|very|
+|deep|learn|
+|full|marriage|
+|management|why|
+|community|billion|
+|fast|pay|
+|behavior|program|
+|peace|military|
+
+power so **child** machine affect **science** cover performance `poor` base fact speech sell short region big well sort apply subject **sort** child sort better play drop nearly including force strategy doctor poor conference safe science between allow ground decide yard real light **ground** west themselves probably thus toward.
