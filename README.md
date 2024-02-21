@@ -64,3 +64,17 @@ a edge ok science line maintain agree own price consider `pick` defense growth t
 |theory|understand|
 
 once world resource money several for scientist `scientist` **several** prove federal hair `**several**` picture five **once** PM sense out `several` money meeting yes `hair`
+
+
+## Group approach
+
+|race|price|
+|---|---|
+|plan|occur|
+|such|day|
+|mouth|listen|
+|growth|responsibility|
+|capital|room|
+|instead|local|
+
+type answer little lot physical **result** treatment **`**result**`** much **result** evidence **physical** picture hotel `**result**` result base `then` drug among space face son do tax then add probably positive involve ask.
