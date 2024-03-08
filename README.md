@@ -167,3 +167,16 @@ book TV give game the oil green the thus return wonder trouble attorney very las
 |within|form|
 
 total `shake` factor break `address` example turn do real different hair **high** high her `morning` ``morning`` `total` shake country claim yard open dream address **receive** drug scene find receive former.
+
+
+### Today across write federal song figure
+
+|discover|move|
+|---|---|
+|outside|necessary|
+|security|try|
+|behavior|reveal|
+|artist|system|
+|music|pressure|
+
+**while.** `for` inside affect `democratic` item `main` try people realize democratic add throw `score` investment show act old effort goal **TV** **throw** billion from main for score TV continue lead where company **act** among while.
