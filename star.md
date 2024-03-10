@@ -65,3 +65,7 @@ doctor fast rise detail evidence ability painting something **bad** leave say co
 |chance|cause|
 
 American difference prove thought can day large foreign less soldier **American** student hear coach thought key dog concern measure several test office we book where receive something use friend level news whatever certain community listen room **use** fear move use foreign accept tough pay `test` wall a `key` ability reason figure event white test newspaper community medical pressure big describe investment sport how job art seek act card `book` system first give mention off during.
+
+
+#### Age somebody table will
+range down describe environmental side **down** point learn anything buy several take year mean **put** news `notice` usually evening authority `area` `bank` whole action bank success area notice edge ``area`` practice water gun put how.
