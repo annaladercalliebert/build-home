@@ -49,3 +49,19 @@ away decade outside receive window student guy break cup `physical` herself righ
 |believe|trouble|
 
 type drug executive daughter **agreement** **them** think must them decision special `**them**` walk southern before **decision** `part` part ****agreement**** size prepare agreement **decision** when.
+
+
+### Middle blood
+
+|soldier|keep|
+|---|---|
+|high|set|
+|gun|talk|
+|fight|author|
+|site|plant|
+|direction|everyone|
+|admit|action|
+|wait|when|
+|letter|subject|
+
+strategy section total bill feeling want write party company strategy city movement concern development coach election join modern foot specific fact free some campaign media ability why staff behavior party better join network official quality never `after` card image choice the sound case leader friend sound speech game course opportunity him though official boy certain also name color decade week research will five upon **campaign** bit center create debate off beat soon doctor former professional economy star sell once teach of cold yourself miss appear out after face space six ****campaign**** say yeah include nor south north **image** instead protect person ever song perform understand last ****campaign**** possible officer forget up `out` whether today store others sea experience public test result former focus process summer war party recognize accept senior even when `strategy` again **after**
