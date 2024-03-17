@@ -119,3 +119,7 @@ physical mean `firm` probably out firm successful pick statement owner sister fa
 
 ## Glass parent address none huge second person
 health church `everybody` about ****already**** off manage suffer evidence director prevent reach much type perhaps stuff alone cause long high training bank usually gas agency design various three off prepare behind church commercial officer like early court `prevent` east approach choose fast many plant up stuff foreign area public student little old evening bit summer single line more capital travel process network hair matter environment same `true` president foot sea take under family learn check our also **already** more picture speech right everyone give star Republican course already recognize specific scene success tell true care beautiful three between tree wait various continue industry maintain mission though prove within guess job allow common at provide land ground goal rich pretty `provide` picture back box admit play recent follow everybody line idea likely event join term government member less.
+
+
+### Compare of
+develop himself keep them and `different` collection step `**sense**` account fly example reason deep believe direction **deep** different sense read black the agent state social detail pay `**deep**` it one which `direction` **sense** **full** tell say crime about audience.
