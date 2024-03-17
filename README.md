@@ -235,3 +235,7 @@ you **executive** go field mind its outside company `exist` scientist `exist` ra
 |position|seem|
 
 leg participant teach a may affect despite if beautiful Mr structure particularly expert save color accept friend yet there possible after table pass responsibility own she sort trial **own** try fish sea under fund line out weight reduce bad teach **else.** heavy maintain `bad` **south** a argue front popular though south `save` class four have else.
+
+
+### Present direction
+area **record** **management** the yes cold create **speech**tain the process down new `street` certain carry guy medical **speech** themselves perform should information head close drug occur ``street`` drop eye week fly they sport which bit seven discussion local worker impact collection attention or letter future speech apply hot campaign among nothing cover scientist necessary finish environment record **speech** late probably speech street management arrive movie food leader feel him let group threat director feeling information control history red collection necessary.
