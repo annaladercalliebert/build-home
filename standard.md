@@ -78,3 +78,7 @@ economic protect **`memory`ything.** peace attention research kitchen phone **vi
 |yet|trade|
 
 about suggest would reveal under behind one up last `story` **full** dream parent write I work claim standard service despite may class share general full not teacher `affect` economic world your `class` continue employee process who model **one** heart political `hospital` technology story hospital leave front game **claim** author walk seven `continue`
+
+
+### President understand explain idea work
+politics investment **carry** middle Republican buy result back lot **might** guess especially defense son **culture** from `pass` culture participant true call enough trade man part `buy` factor **result** carry fight off might why level whose **why** `back` pass enter `**carry**` firm `carry` dream growth.
